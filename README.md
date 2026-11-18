@@ -24,6 +24,7 @@ Let’s just say that Adaen of Bridgewater usually had something on his mind and
 
 Yes, I’m back. I’ve been coming here for a long time (my profile says 20+ years). Here and other places online. Some are as perennial as the grass and some are gone. I’d like to use this thread to say hello. Hello to new folks that don’t yet know me and Hello to old friends from times past. 
 To say hello, and let you know what I’ve been thinking about and what I’ve been working on. Most of it will be gaming, of course. I’ll add little pieces now and then to this thread as responses; and of course if I’ve got something specific to talk about, I’ll set up a specific thread to do that. Good Gaming, All. Talk soon.
+<img width="711" height="711" alt="donut shop4" src="https://github.com/user-attachments/assets/f0e74161-9d8f-4b79-a547-81f8467691cf" />
 
 Very Best,
 
